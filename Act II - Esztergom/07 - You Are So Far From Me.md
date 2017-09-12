@@ -14,7 +14,7 @@ I cannot understand you, neither can I reach you.
 You are so far away from me, but also very near.  
 Listening, and I feel, my heart is answering.
 
-**STEPHEN** *(REKA)*
+**STEPHEN** *(REKA)*  
 Oh, my good Lord, I got my soul and position from you.  
 *(Sweet Lord, look down on me,)*  
 Enemies standing with me, my people attacking attacking me.  
