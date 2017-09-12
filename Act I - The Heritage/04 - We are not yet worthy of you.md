@@ -19,7 +19,7 @@ that we are not yet worthy of you!
 Be the true, understanding God,  
 as there is so much trouble here on Earth.
 
-**LABORC**
+**LABORC**  
 Why are you begging like an orphan?  
 You are not the daughter of anybody!  
 Stand before Koppány, and say  
