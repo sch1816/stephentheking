@@ -15,6 +15,7 @@ Somebody has to tear the chains from himself tomorrow
 Oh say, who would you choose?
 
 
+
 Help us! Help us!
 
 Help us! Help us!
@@ -22,6 +23,7 @@ Help us! Help us!
 Help us! Oh, help us!
 
 Help us! Oh, help us!
+
 
 
 Oh say, who would you choose?
@@ -41,6 +43,7 @@ Oh say, who would you choose?
 Somebody has to give up his life tomorrow
 
 Oh say, who would you choose?
+
 
 
 Help us! Help us!
