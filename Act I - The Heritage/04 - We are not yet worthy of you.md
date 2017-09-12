@@ -28,3 +28,23 @@ Ask your father to help,
 He is a greater lord than the God!  
 Soon Koppány will be monarch!
 
+We don't need such God, who forgives everything.  
+We don't need such God, who kills one of his sons.  
+We don't need such God, who can't speak Hungarian.  
+Free Hungarians don't need such lord!
+
+We don't need such God, who think whoever lives, is guilty  
+We don't need such God, who promises only suffering  
+We don't need such God, who can't speak Hungarian.  
+Free Hungarians don't need such lord!
+
+Don't need, don't need!  
+Don't need, don't need!  
+Don't need, don't need!  
+Don't need, don't need!  
+
+**CROWD**  
+Don't need, don't need!  
+Don't need, don't need!  
+Don't need, don't need!  
+Don't need, don't need!  
