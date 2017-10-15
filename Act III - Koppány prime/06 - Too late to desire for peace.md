@@ -16,3 +16,22 @@ I'm considered as a pagan, 'cause I can't bear the power of priests,
 They call out for sin, where the country defends its freedom.  
 I'm considered as a pagan, 'cause I resist the conquerors,  
 Everybody is a pagan here who is with me instead of Stephen.  
+
+//refrain//
+
+**STEPHEN**  
+Chief Koppány, don't think that I don't love you.  
+The throne is yours, if you accept what you have to do.  
+In our hands is the fate of the folk and country.  
+All roads lead to Rome, or to devastation.  
+
+**KOPPANY**  
+I'm considered as a pagan, 'cause I can't bear the power of priests,  
+**STEPHEN**  
+Accept Rome, and from tomorrow the country is yours  
+**KOPPANY**  
+I'm considered as a pagan, 'cause I resist the conquerors,  
+**STEPHEN**  
+I've brought peace, 'cause peace is what the country needs.  
+
+//refrain//
