@@ -22,7 +22,7 @@ Everybody is a pagan here who is with me instead of Stephen.
 **STEPHEN**  
 Chief Koppány, don't think that I don't love you.  
 The throne is yours, if you accept what you have to do.  
-In our hands is the fate of the folk and country.  
+The fate of the folk and country is in our hands,
 All roads lead to Rome, or to devastation.  
 
 **KOPPANY**  
