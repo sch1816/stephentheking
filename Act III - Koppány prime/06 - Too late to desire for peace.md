@@ -17,7 +17,10 @@ They call out for sin, where the country defends its freedom.
 I'm considered as a pagan, 'cause I resist the conquerors,  
 Everybody is a pagan here who is with me instead of Stephen.  
 
-//refrain//
+It is too late to reconsider everything,  
+Late to desire peace.  
+Too late for the past to reinterpret,  
+The world is on an orbit of constraints!  
 
 **STEPHEN**  
 Chief Koppány, don't think that I don't love you.  
@@ -34,4 +37,8 @@ I'm considered as a pagan, 'cause I resist the conquerors,
 **STEPHEN**  
 I've brought peace, 'cause peace is what the country needs.  
 
-//refrain//
+**KOPPANY**  
+It is too late to reconsider everything,  
+Late to desire peace.  
+Too late for the past to reinterpret,  
+The world is on an orbit of constraints!  
