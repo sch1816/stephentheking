@@ -1,3 +1,4 @@
+**CHOIR AND TROUBADOUR**  
 Somebody has to defeat the darkness tomorrow  
 Tell me, whom would you choose?  
 Somebody has to rewrite the old tales tomorrow  
